@@ -1,1 +1,6 @@
-# vidmateapkdownload.github.io
+* [Vidmate apk download](https://sites.google.com/view/vidmateapk-download/)
+* [Vidmate apk download](https://vidmateapkdownload.renderforestsites.com/)
+* [Vidmate apk download](https://vidmateapk-download.weebly.com/)
+* [Vidmate apk download](https://vidmateapkdownlo0ad.wordpress.com/)
+* [Vidmate apk download](https://vidmateapk-download.tumblr.com/)
+* [Vidmate apk download](https://vidmateapk-download.mystrikingly.com/)
